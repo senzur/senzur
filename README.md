@@ -1,5 +1,5 @@
 Hi
-I wna make Dubious software
+I wna make Dubious software -
 My code is awful dont laugh at me .
 
 @taperfade on Discord
