@@ -1,4 +1,3 @@
- <img src="https://pasteboard.co/bkG6BsFrrRkB.png"/>
 
 Hi
 I wna make Dubious software -
